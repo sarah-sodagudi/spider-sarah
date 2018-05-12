@@ -70,14 +70,14 @@ I might need a break, just for a week.
 for more poems about family visit:http://www.anitapoems.com/poems-about-family.html  
 
 
-*Poetry* (the term derives from a variant of the Greek term, poiesis, "making") is a form of literature that uses aesthetic and rhythmic qualities of language—such as phonaesthetics, sound symbolism, and metre—to evoke meanings in addition to, or in place of, the prosaic ostensible meaning.
-A *poem* is a piece of writing in which the words are chosen for their beauty and sound and are carefully arranged, often in short lines which rhyme.
-YOU CAN ALSO MAKE POEMS LIKE THESE BY JUST FOLLOWING FEW STEPS ::
+*Poetry* (the term derives from a variant of the Greek term, poiesis, "making") is a form of literature that uses aesthetic and rhythmic qualities of language—such as phonaesthetics, sound symbolism, and metre—to evoke meanings in addition to, or in place of, the prosaic ostensible meaning.  
+A *poem* is a piece of writing in which the words are chosen for their beauty and sound and are carefully arranged, often in short lines which rhyme.  
+YOU CAN ALSO MAKE POEMS LIKE THESE BY JUST FOLLOWING FEW STEPS ::  
 
-If you are writing a poem because you want to capture a feeling that you experienced, then you don’t need these tips. Just write whatever feels right. Only you experienced the feeling that you want to express, so only you will know whether your poem succeeds.(like how i did in the begining ,no rhyme just my feelings)  
++ If you are writing a poem because you want to capture a feeling that you experienced, then you don’t need these tips. Just write whatever feels right. Only you experienced the feeling that you want to express, so only you will know whether your poem succeeds.(like how i did in the begining ,no rhyme just my feelings)  
 
-If, however, your goal is to communicate with a reader — drawing on the established conventions of a literary genre (conventions that will be familiar to the experienced reader) to generate an emotional response in your reader — then simply writing what feels right to you won’t be enough.  
-These tips will help you make an important transition:
++ If, however, your goal is to communicate with a reader — drawing on the established conventions of a literary genre (conventions that will be familiar to the experienced reader) to generate an emotional response in your reader — then simply writing what feels right to you won’t be enough.  
+These tips will help you make an important transition:  
 
 + away from writing poetry to celebrate, commemorate, or capture your own feelings (in which case you, the poet, are the center of the poem’s universe)  
 + towards writing poetry in order to generate feelings in your reader (in which case the poem exists entirely to serve the reader).  
