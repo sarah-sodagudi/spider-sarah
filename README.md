@@ -24,7 +24,7 @@ the little girl they want back is hard to find.
 
 
 
-for more poems about maturity visit :https://www.familyfriendpoems.com/poems/teen/growing-up/  
+[For more poems about maturity](https://www.familyfriendpoems.com/poems/teen/growing-up/)  
 
 
 *_**True Friendship - Poem by William S. Tsoukalas, Sr.**_*
@@ -46,7 +46,7 @@ Is to make sure that it's never lost
 
 
 
-for more poems about friendship visit:https://www.poemhunter.com/poems/friendship/  
+[For more poems about friendship](https://www.poemhunter.com/poems/friendship/)
 
 
 *_**Family Unique**_*
@@ -67,7 +67,7 @@ What can I say, our family is unique,
 I might need a break, just for a week.  
 
 
-for more poems about family visit:http://www.anitapoems.com/poems-about-family.html  
+[For more poems about family](http://www.anitapoems.com/poems-about-family.html)  
 
 
 *Poetry* (the term derives from a variant of the Greek term, poiesis, "making") is a form of literature that uses aesthetic and rhythmic qualities of language—such as phonaesthetics, sound symbolism, and metre—to evoke meanings in addition to, or in place of, the prosaic ostensible meaning.  
