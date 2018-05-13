@@ -1,5 +1,6 @@
 # spider-sarah
 *We will teach you how to write poems* 
+![POETRY][http://kenyanpoet.com/wp-content/uploads/2016/05/poetry-in-garden-web11.jpg]  
 
 Maybe i am an *ordinary* person now but i wont be the  same later  
 I always tried to be someone but **NOT** anymore  
